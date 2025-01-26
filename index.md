@@ -1,6 +1,6 @@
 ---
-title: The truth about Darlenia
+title: My Darlenia. My truth
 ---
 
-# The truth about Darlenia
-My memories, my experience and my thoughts about what really happened in Darlenia
+# Justice is close
+Darlenia will roar...
