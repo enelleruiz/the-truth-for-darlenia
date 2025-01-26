@@ -1,6 +1,6 @@
 ---
-title: My Darlenia. My truth
+title: Darlenia
 ---
 
-# Justice is close
+# Justice is near
 Darlenia will roar...
